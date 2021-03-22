@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Alina Reichert
+## Straße | MTB | Cross
 
-I'm glad you are here. I plan to talk about ...
+Hallo! Auf dieser Seite will ich euch um meine Aktivitäten rund ums Rad auf dem Laufenden halten.
